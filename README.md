@@ -1,3 +1,3 @@
-# You are such a moron
+# You are such an idiot
 
-Ben, you idiot.
+Wow, you are dumb.
