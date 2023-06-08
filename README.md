@@ -1,3 +1,3 @@
-# benhicksonisdumb
+# You are such a moron
 
-Ben, you idiot
+Ben, you idiot.
